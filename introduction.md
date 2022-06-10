@@ -1,5 +1,5 @@
 # Introduce myself
-- 👋 Hi, I’m @JayMNY in _Hallym University_
+- 👋 Hi, I’m @JayMNY in ***Hallym University***
 - 🙋🏻‍♀️ My name is ***정민영***
 - 👀 My major is ***Chemisty***
 - 📫 You can contact me to send me a _[tini0830@naver.com](tini0830@naver.com)_
